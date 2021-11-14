@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LX-Enby
+- 👀 I’m interested in drawing
+- 🌱 I’m currently learning to animate and hopefully code
+- 💞️ I’m looking to collaborate on Friday Night Funkin' Mods
+- 📫 How to reach me: Gmail: ohecc57@gmail.com Instagram: lx_enby 
